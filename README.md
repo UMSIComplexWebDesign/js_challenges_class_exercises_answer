@@ -7,7 +7,7 @@ You can also see video explanations at:
 
 Challenge 1: https://www.youtube.com/watch?v=uH0bTC14EBM&feature=youtu.be
 
-Challenge 2: https://www.youtube.com/watch?v=9RTVY6i66sI&feature=youtu.be
+Challenge 2: https://youtu.be/ei8fGkrAFn0
 
 
 
